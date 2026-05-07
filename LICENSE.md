@@ -1,4 +1,4 @@
-
+dig deeper for brainrots Scripts updated offers the most advanced dig deeper for brainrots Script, with teleport and god mode. Perfect for dominating
 
 
 
